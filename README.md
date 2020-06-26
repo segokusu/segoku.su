@@ -1,0 +1,2 @@
+# SEGOKU.SU
+
